@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🌍 About Me:
 <!-- Created with Shields.io (https://shields.io/) -->
 
 <p>
